@@ -5,7 +5,7 @@
 
 - 📫 How to reach me **15ishaangupta@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1BuekHtDx4IE_6upzr7ubR0zngMlzVe9V/view](https://drive.google.com/file/d/1BuekHtDx4IE_6upzr7ubR0zngMlzVe9V/view)
+- 📄 Resume [https://drive.google.com/file/d/1BuekHtDx4IE_6upzr7ubR0zngMlzVe9V/view](https://drive.google.com/file/d/1BuekHtDx4IE_6upzr7ubR0zngMlzVe9V/view)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
